@@ -1,4 +1,4 @@
-# No tribunal dos algoritmos, eu busco justiça (e menos bugs). ⚖️🖥️
+# No tribunal dos algoritmos, eu busco justiça (e menos bugs). ⚖️💻
 
 Meu nome é Luciana e minha trajetória é feita de intersecções improváveis: enquanto muitos enxergam Direito e Tecnologia como trilhas paralelas, minha curiosidade insistiu em encontrar pontes.
 
