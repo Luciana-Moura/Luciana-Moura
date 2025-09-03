@@ -22,7 +22,7 @@ Com o tempo, entendi que não precisava escolher entre Direito e Tecnologia. Pel
 ## 💬 Vamos conversar?
 
 Adoro trocar ideias sobre inovação, projetos multidisciplinares ou desafios que unem Direito e Tecnologia.  
-[LinkedIn](https://linkedin.com/in/lucianamoura-) • luciana_rdm@eoutlook.com
+[LinkedIn](https://linkedin.com/in/lucianamoura-) • luciana_rdm@outlook.com
 
 ---
 
